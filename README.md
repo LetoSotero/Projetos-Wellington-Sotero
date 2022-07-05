@@ -1,1 +1,0 @@
-# Projetos pessoais para portifólio.
